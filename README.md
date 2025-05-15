@@ -1,1 +1,1 @@
-# Maul-Project
+# Proposal
